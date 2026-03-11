@@ -1,0 +1,1 @@
+# tugas_oop_RICHARDO2518046
